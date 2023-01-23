@@ -1,1 +1,1 @@
-# [Web Movie](https://adhiluphanna.github.io/directlink/)
+# [Random directlink](https://adhiluphanna.github.io/directlink/)
